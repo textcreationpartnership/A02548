@@ -35,265 +35,161 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The honor of the married clergie, maintayned against the malicious challenges of C.E. Masse-priest: 
+
+1. TO THE MOST REVEREND FATHER IN GOD, AND MY MOST HONORED Lord, GEORGE, Lord Archbiſhop of CANTERBVRIE, Primate of all England, and Metropolitan, one of his Maieſties moſt Honourable Priuie Counſaile.
+
+1. THE ANSWERE TO the Aduertiſement.
+
+1. Errata.
+
 #####Body#####
 
-1. SECT. I.
+1. THE HONOVR OF THE MARRIED CLERGIE maintained, &c. The first Booke.
 
-    _ The Concluſion.
+    _ SECT. I.
 
-1. SECT. II.
+    _ SECT. II.
 
-    _ The Concluſion.
+    _ SECT. III.
 
-1. SECT. III.
+    _ SECT. IIII.
 
-    _ The Concluſion.
+    _ SECT. V.
 
-1. SECT. IIII.
+    _ SECT. VI.
 
-    _ The Concluſion.
+    _ SECT. VII.
 
-1. SECT. V.
+    _ SECT. VIII.
 
-    _ The Concluſion.
+    _ SECT. IX.
 
-1. SECT. VI.
+    _ SECT. X.
 
-    _ The Concluſion.
+    _ SECT. XI.
 
-1. SECT. VII.
+    _ SECT. XII.
 
-    _ The Concluſion.
+    _ SECT. XIII.
 
-1. SECT. VIII.
+    _ SECT. XIIII.
 
-    _ The Concluſion.
+    _ SECT. XV.
 
-1. SECT. IX.
+    _ SECT. XVI.
 
-    _ The Concluſion.
+    _ SECT. XVII.
 
-1. SECT. X.
+    _ SECT. XVIII.
 
-    _ The Concluſion.
+    _ SECT. XIX.
 
-1. SECT. XI.
+    _ SECT. XX.
 
-    _ The Concluſion.
+    _ SECT. XXI.
 
-1. SECT. XII.
+    _ SECT. XXII.
 
-    _ The Concluſion.
+    _ SECT. XXIII.
 
-1. SECT. XIII.
+    _ SECT. XXIIII.
 
-    _ The Concluſion.
+    _ SECT. XXV.
 
-1. SECT. XIIII.
+    _ SECT. XXVI.
 
-    _ The Concluſion.
+    _ SECT. XXVII.
 
-1. SECT. XV.
+    _ SECT. XXVIII.
 
-    _ The Concluſion.
+    _ SECT. XXIX.
 
-1. SECT. XVI.
+1. THE HONOVR OF THE MARRIED CLERGIE maintained, &c. The ſecond Booke.
 
-    _ The Concluſion.
+    _ SECT. I.
 
-1. SECT. XVII.
+    _ SECT. II.
 
-    _ The Concluſion.
+    _ SECT. III.
 
-1. SECT. XVIII.
+    _ SECT. IIII.
 
-    _ The Concluſion.
+    _ SECT. V.
 
-1. SECT. XIX.
+    _ SECT. VI.
 
-    _ The Concluſion.
+    _ SECT. VII.
 
-1. SECT. XX.
+    _ SECT. VIII.
 
-    _ The Concluſion.
+    _ SECT. IX.
 
-1. SECT. XXI.
+    _ SECT. X.
 
-    _ The Concluſion.
+    _ SECT. XI.
 
-1. SECT. XXII.
+    _ SECT. XII.
 
-    _ The Concluſion.
+    _ SECT. XIII.
 
-1. SECT. XXIII.
+    _ SECT. XIIII.
 
-    _ The Concluſion.
+    _ SECT. XV.
 
-1. SECT. XXIIII.
+    _ SECT. XVI.
 
-    _ The Concluſion.
+    _ Sect. XVII.
 
-1. SECT. XXV.
+1. THE HONOVR OF THE MARRIED CLERGIE maintained, &c. The third Booke.
 
-    _ The Concluſion.
+    _ SECT. I.
 
-1. SECT. XXVI.
+    _ SECT. II.
 
-    _ The Concluſion.
+    _ SECT. III.
 
-1. SECT. XXVII.
+    _ SECT. IIII.
 
-    _ The Concluſion.
+    _ SECT. V.
 
-1. SECT. XXVIII.
+    _ SECT. VI.
 
-    _ The Concluſion.
+    _ SECT. VII.
 
-1. SECT. XXIX.
+    _ SECT. VIII.
 
-    _ The Concluſion.
+    _ SECT. IX.
 
-1. SECT. I.
+    _ SECT. X.
 
-    _ The Concluſion.
-
-1. SECT. II.
-
-    _ The Concluſion.
-
-1. SECT. III.
-
-    _ The Concluſion.
-
-1. SECT. IIII.
-
-    _ The Concluſion.
-
-1. SECT. V.
-
-    _ The Concluſion.
-
-1. SECT. VI.
-
-    _ The Concluſion.
-
-1. SECT. VII.
-
-    _ The Concluſion.
-
-1. SECT. VIII.
-
-    _ The Concluſion.
-
-1. SECT. IX.
-
-    _ The Concluſion.
-
-1. SECT. X.
-
-    _ The Concluſion.
-
-1. SECT. XI.
-
-    _ The Concluſion.
-
-1. SECT. XII.
-
-    _ The Concluſion.
-
-1. SECT. XIII.
-
-    _ The Concluſion.
-
-1. SECT. XIIII.
-
-    _ The Concluſion.
-
-1. SECT. XV.
-
-    _ The Concluſion.
-
-1. SECT. XVI.
-
-    _ The Concluſion.
-
-1. Sect. XVII.
-
-    _ The Concluſion.
-
-1. SECT. I.
-
-    _ The Concluſion.
-
-1. SECT. II.
-
-    _ The Concluſion.
-
-1. SECT. III.
-
-    _ The Concluſion.
-
-1. SECT. IIII.
-
-    _ The Concluſion.
-
-1. SECT. V.
-
-    _ The Concluſion.
-
-1. SECT. VI.
-
-    _ The Concluſion.
-
-1. SECT. VII.
-
-    _ The Concluſion.
-
-1. SECT. VIII.
-
-    _ The Concluſion.
-
-1. SECT. IX.
-
-    _ The Concluſion.
-
-1. SECT. X.
-
-    _ The Concluſion.
-
-1. SECT. XI.
-
-    _ The Concluſion.
+    _ SECT. XI.
 Refut. p. 324.BVt to ſtrike it dead, my Aduerſarie will proue the Engliſh Clergie euer to haue beene
-    _ The Concluſion.
+    _ SECT. XIII.
 
-1. SECT. XIII.
+    _ SECT. XIIII.
 
-    _ The Concluſion.
+    _ SECT. XV.
 
-1. SECT. XIIII.
+    _ SECT. XVI.
 
-    _ The Concluſion.
+    _ SECT. XVII.
 
-1. SECT. XV.
+    _ SECT. XVIII.
 
-    _ The Concluſion.
+      * The Concluſion.
 
-1. SECT. XVI.
+1. ROTOMAGENSIS. ANONYMVS.
 
-    _ The Concluſion.
+1. Which, for my Countrimens ſake I haue thus Engliſhed.
 
-1. SECT. XVII.
+1. WHERETO I WILL adde for Concluſion the wiſe and ingenuous iudgement of Eraſmus Roterodamus; The rather, becauſe it pleaſed my Refuter to lay this worthy Authour in our diſh.
 
-    _ The Concluſion.
-
-1. SECT. XVIII.
-
-    _ The Concluſion.
+1. Poſt-Script to a ſecond Libell.
 
 #####Back#####
-The honor of the married clergie, maintayned against the malicious challenges of C.E. Masse-priest: 
+
+1. In the former ſheets which came late to my view, I found alſo theſe Errata.
+
 **Types of content**
 
   * There are 30 **verse** lines!
